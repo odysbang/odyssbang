@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @odyssbang
+- 👋 Hi, I’m @odysbang
 - 👀 I’m interested in SEO
 - 🌱 I’m currently learning SEO
 - 💞️ I’m looking to collaborate on SEO projects
